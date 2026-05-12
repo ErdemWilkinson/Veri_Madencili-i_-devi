@@ -1,3 +1,4 @@
 # Veri_Madenciligi_odevi
 
-[verimadenciliğidönemsonuödevi.zip](https://github.com/user-attachments/files/27605937/verimadenciligidonemsonuodevi.zip)
+
+[446764_450657.zip](https://github.com/user-attachments/files/27655883/446764_450657.zip)
